@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Papierkorb2292
-- 👀 I’m interested in Paper
+- 👀 I’m interested in paper
 - 🌱 I’m currently learning the new paper packaging technique
 - 💞️ I’m looking to collaborate with Trashbin3757
 - 📫 How to reach me: Put a paper signal on a cloud
